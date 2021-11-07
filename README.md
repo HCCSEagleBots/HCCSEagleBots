@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HCCSEagleBots
-- 👀 I’m interested in never giving up
+- 👀 I’m interested in never gonna give you up
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
